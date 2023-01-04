@@ -10,3 +10,6 @@ sllaw mn Twanst Developer Kurdish MNHallsawm Ba Save U link Kredni Aw Databaisa 
 ابن عاشور
 إعراب القرآن لدعاس
 الوسيط لطنطاوي
+
+awash linke 
+https://www.mediafire.com/file/0ups0kstrmqcs2n/tafaseer.db/file
