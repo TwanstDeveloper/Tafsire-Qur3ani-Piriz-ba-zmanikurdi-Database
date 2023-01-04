@@ -1,0 +1,1 @@
+# Tafsire-Qur3ani-Piriz-ba-zmanikurdi-Database
